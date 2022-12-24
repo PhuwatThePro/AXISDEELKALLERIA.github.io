@@ -8,4 +8,4 @@ my friends with website i make (actually you make lol) but yes so program or wha
 
 i would appreciate it!
 
-# https://phuwatthepro.github.io/omghaxhax1234/proprolikejamalling
+# https://phuwatthepro.github.io/omghaxhax1234/proprolikejamaling
